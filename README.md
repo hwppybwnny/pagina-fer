@@ -1,2 +1,0 @@
-# pagina-fer
-fer pagina
